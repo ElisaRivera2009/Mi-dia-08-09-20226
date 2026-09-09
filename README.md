@@ -21,4 +21,4 @@ No recibimos Calculo y ensayamos para el baile del acto civico
 # 10:25-11:00 
 No vino la maestra Deysi y volvimos a ensayar para el bailde del acto civico 
 # 11:00-11:35 
-Recibi Programacion en Steam 
+Recibi Programacion en STEAM
